@@ -1,1 +1,1 @@
-nie przelewaj obcym kasy
+nie przelewaj obcym kasy w internecie
