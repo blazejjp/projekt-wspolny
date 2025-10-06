@@ -1,1 +1,1 @@
-też pomysł - Dagmara
+nie przelewaj obcym kasy
